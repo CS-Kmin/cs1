@@ -1,0 +1,1 @@
+Chào Nhi, bài làm của em rất tốt nha. Bài 3 có cách nào tối ưu (ngắn gọn) hơn không nhỉ?
